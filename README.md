@@ -1,0 +1,1 @@
+# fundamentals2020_B12
